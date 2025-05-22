@@ -1,13 +1,11 @@
-- National Scholarship of Graduate Student, 2024.
+<strong>Municipal Level<strong>\
 
-- First-prize Scholarship of CUMT, 2024.
+- ​2023 8th Guangzhou Chorus Festival, Group Gold Award.\
 
-- First-prize Scholarship of CUMT, 2023.
+<strong>University Level<strong>\
 
-- Freshman Scholarship of CUMT, 2022.
-
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
+- Dean’s List Scholarship, 2023\
+​- Third-Class University Scholarship, 2022\
+​- Third Prize in Integrity Culture Art Competition (Zhongkai Campus), 2022\
+- First-prize Enterprise Scholarship of CUMT, 2020.\
 - First-prize Scholarship of CUMT, 2019.
